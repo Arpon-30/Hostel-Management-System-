@@ -167,5 +167,5 @@ For academic and demonstration use only.
 
 ## Contact
 
-**Email:** majumder.tutul.364@gmail.com  
+**Email:** arponamit.55@gmail.com 
 **Address:** American International University-Bangladesh, Dhaka, Bangladesh
